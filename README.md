@@ -1,4 +1,4 @@
-# Pricing Strategies & Influence on Sales
+# Pricing Strategies & Influence on Sales(2025)
 
 > *How much can price fluctuations affect sales — and which products are most sensitive?*
 
